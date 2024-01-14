@@ -1,5 +1,5 @@
 - 👋 olá , sou @HaroldoCapucci
-- 👀 tenho interesse em trabalhar Home Office e redusir as horas de trabalho
+- 👀 tenho interesse em trabalhar 
 - 🌱 gosto muito das plantas 🏝 e dos animais 🐶🐕...
 
 <!---
