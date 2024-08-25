@@ -1,5 +1,5 @@
 - 👋 olá , sou @HaroldoCapucci
-- 👀 tenho interesse em trabalhar 
+- 👀 tenho interesse em estudar muito e trabalhar. 
 - 🌱 gosto muito das plantas 🏝 e dos animais 🐶🐕🍁....
 
 <!---
